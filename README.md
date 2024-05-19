@@ -1,6 +1,6 @@
 # My Favorite Series
 
-## Maze Runner
+## Maze Runner.
 
 ### Overview
 *Maze Runner* is a series of young adult dystopian science fiction novels written by James Dashner.
